@@ -1,0 +1,1 @@
+Letovo IT ML&DL class 2020-2021.
